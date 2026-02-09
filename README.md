@@ -1,4 +1,11 @@
-## 𑣲 HELLO, You can call me Leiziyu or Hyora. You can alos call me by my real name if were CLOSE ᶻ 𝗓 𐰁
+## ABOUT ME
+ 𑣲  **WELL HELLO, You can call me Leiziyu or Hyora. You can alSO call me by my real name if were CLOSE !! ᶻ 𝗓 𐰁**           
+  ㅤ𑣲  **I'm a minor, please be kind.**
+## NOTES ִֶָ🪽
+ 𑣲  PLEASE do not copy my ponies, but if you want to take insp.. its okay if you asked me first. (NICELY)
+ 
+ **𑣲 IM not ignoring youm i was afk most of the time.   𐙚**
+ ## VISIT MY RENTRY INSTEADD... !!
 
 <!--
 **C4NIBAYL1SM3/C4NIBAYL1SM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

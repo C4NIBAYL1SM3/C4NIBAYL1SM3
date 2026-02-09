@@ -1,4 +1,4 @@
-## Hi there 👋
+## 𑣲 HELLO, You can call me Leiziyu or Hyora. You can alos call me by my real name if were CLOSE ᶻ 𝗓 𐰁
 
 <!--
 **C4NIBAYL1SM3/C4NIBAYL1SM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

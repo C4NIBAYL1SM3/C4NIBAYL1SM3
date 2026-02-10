@@ -4,7 +4,7 @@
  𑣲  **WELL HELLO, You can call me Leiziyu or Hyora. You can alSO call me by my real name if were CLOSE !! ᶻ 𝗓 𐰁**           
   ㅤ𑣲  **I'm a minor, please be kind.**
 ## NOTES ִֶָㅤ🪽  Ი︵𐑼
- 𑣲  PLEASE do not copy my ponies, but if you want to take insp.. its okay ( ASKED NICELY FIRST ) IM BAD AT ENGLISH HUHUHUHU
+ 𑣲  PLEASE do not copy my ponies, but if you want to take insp.. its okay ( ASK NICELY FIRST ) IM BAD AT ENGLISH HUHUHUHU
  
  **𑣲 IM not ignoring youm i was afk most of the time.   𐙚**
  ## VISIT MY RENTRY INSTEADD... !!ㅤㅤ 𓏲 ๋࣭ ࣪ㅤㅤㅤ ˖🎐

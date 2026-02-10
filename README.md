@@ -7,7 +7,7 @@
  𑣲  PLEASE do not copy my ponies, but if you want to take insp.. its okay ( ASK NICELY FIRST ) IM BAD AT ENGLISH HUHUHUHU
  
  **𑣲 IM not ignoring youm i was afk most of the time.   𐙚**
- ## VISIT MY RENTRY INSTEADD... !!ㅤㅤ 𓏲 ๋࣭ ࣪ㅤㅤㅤ ˖🎐
+ ## VISIT MY RENTRY & PATREON INSTEADD... !!ㅤㅤ 𓏲 ๋࣭ ࣪ㅤㅤㅤ ˖🎐
 
 <!--
 **C4NIBAYL1SM3/C4NIBAYL1SM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

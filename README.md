@@ -7,6 +7,8 @@
  𑣲  PLEASE do not copy my ponies, but if you want to take insp.. its okay ( ASK NICELY FIRST ) IM BAD AT ENGLISH HUHUHUHU
  
  **𑣲 IM not ignoring youm i was afk most of the time.   𐙚**
+
+  **𑣲 either offtab or afk, so w2i is recommended... i also block freely. and YES i have like 300 styles im very inconsistent heh....**
  ## VISIT MY RENTRY / PATREON / strawpage INSTEADD... !!ㅤㅤ 𓏲 ๋࣭ ࣪ㅤㅤㅤ ˖🎐
 
 <!--

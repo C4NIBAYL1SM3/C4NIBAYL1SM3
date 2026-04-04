@@ -1,16 +1,14 @@
-## Hi there 👋
+<img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/64f43738-95ec-4f2b-a3af-5e6541540bfc" />
+ㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤstill wip
 
-<!--
-**C4NIBAYL1SM3/C4NIBAYL1SM3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="4567" height="1264" alt="Image" src="https://github.com/user-attachments/assets/e2f18e4f-5bf8-4023-a3a4-d1135d37c7cd" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
+<img width="1236" height="743" alt="Image" src="https://github.com/user-attachments/assets/ef043d72-d1fe-46f0-a4de-71f88b2b15c1" />

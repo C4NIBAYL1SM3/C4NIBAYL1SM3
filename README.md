@@ -27,7 +27,7 @@
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/072629e1-0135-4642-858e-1e6cd4123d1a" />
 </a>
 ㅤㅤㅤㅤㅤㅤㅤ
-<a href="wait">
+<a href="https://rentry.co/REILEIZUYA">
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/3e98d067-2a17-406b-a144-4d2eb396b5e6" />
 </a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 

@@ -1,4 +1,8 @@
+
+
 <img width="1280" height="256" alt="Image" src="https://github.com/user-attachments/assets/d34eef7e-7862-4c0d-914e-d6e528d21a5a" />
+
+![image_alt](https://img.shields.io/badge/ᵔ⤙ᵔ-이애리을_._𖥔-beige) 
 
 <img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/64f43738-95ec-4f2b-a3af-5e6541540bfc" />
 ㅤㅤㅤㅤㅤ
@@ -13,7 +17,7 @@
 <img width="4567" height="1264" alt="Image" src="https://github.com/user-attachments/assets/e2f18e4f-5bf8-4023-a3a4-d1135d37c7cd" />
 <img width="4501" height="403" alt="Image" src="https://github.com/user-attachments/assets/26fd4a87-1d83-4f7e-aec4-1f8d23643d43" />
 
-<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1e2f580b-93f6-47b5-9535-ad969d3d84c5" />ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/ad78aa40-a988-4ac7-b7c8-b1b2c594ce4b" />ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/658a7d3a-f262-493d-97f5-932878fbb587" />
+ㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1e2f580b-93f6-47b5-9535-ad969d3d84c5" />ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/ad78aa40-a988-4ac7-b7c8-b1b2c594ce4b" />ㅤㅤㅤㅤㅤ.ㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/658a7d3a-f262-493d-97f5-932878fbb587" />
 
 ㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/SLEEPINGDOLLIE">

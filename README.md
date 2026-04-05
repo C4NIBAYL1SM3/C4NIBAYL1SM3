@@ -8,8 +8,18 @@
 <img width="4567" height="1264" alt="Image" src="https://github.com/user-attachments/assets/e2f18e4f-5bf8-4023-a3a4-d1135d37c7cd" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/ad78aa40-a988-4ac7-b7c8-b1b2c594ce4b" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[<img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/a0e26563-9281-400c-91b5-3df98031ef42" />](hhttps://rentry.co/medicinedoll) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/SLEEPINGDOLLIE">
+  <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/a0e26563-9281-400c-91b5-3df98031ef42" />
+</a>
+ㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/medicinedollie">
+  <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/072629e1-0135-4642-858e-1e6cd4123d1a" />
+</a>
+ㅤㅤㅤㅤㅤㅤㅤ
+<a href="wait">
+  <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/3e98d067-2a17-406b-a144-4d2eb396b5e6" />
+</a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 <img width="1236" height="743" alt="Image" src="https://github.com/user-attachments/assets/ef043d72-d1fe-46f0-a4de-71f88b2b15c1" />

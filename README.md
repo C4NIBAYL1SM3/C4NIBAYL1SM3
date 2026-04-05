@@ -8,7 +8,8 @@
 <img width="4567" height="1264" alt="Image" src="https://github.com/user-attachments/assets/e2f18e4f-5bf8-4023-a3a4-d1135d37c7cd" />
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1e2f580b-93f6-47b5-9535-ad969d3d84c5" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/ad78aa40-a988-4ac7-b7c8-b1b2c594ce4b" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/658a7d3a-f262-493d-97f5-932878fbb587" />
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+ㅤㅤㅤㅤㅤㅤㅤ
 <a href="https://rentry.co/SLEEPINGDOLLIE">
   <img width="74" height="90" alt="Image" src="https://github.com/user-attachments/assets/a0e26563-9281-400c-91b5-3df98031ef42" />
 </a>

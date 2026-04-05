@@ -1,3 +1,5 @@
+<img width="1280" height="256" alt="Image" src="https://github.com/user-attachments/assets/d34eef7e-7862-4c0d-914e-d6e528d21a5a" />
+
 <img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/64f43738-95ec-4f2b-a3af-5e6541540bfc" />
 ㅤㅤㅤㅤㅤ
 
@@ -5,7 +7,10 @@
 
 ㅤㅤㅤ<img width="67" height="18" alt="Image" src="https://github.com/user-attachments/assets/7ddca193-b88a-4ae3-8f7f-436f1d573e35" />ㅤㅤㅤㅤ[StrawPage](https://c4nibayl1sme.straw.page)ㅤㅤㅤㅤㅤㅤ˖ . 𖥔ㅤㅤㅤㅤㅤㅤㅤ[Shared—SP](https://lesafayuan.straw.page) ㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/5684bbe0-a8a8-409b-a8ec-084e4643ada8" />
 ㅤㅤㅤㅤㅤㅤㅤ ‎ ‎   
+
+<img width="336" height="10" alt="Image" src="https://github.com/user-attachments/assets/7eb9bfdc-54bc-4388-a125-b26ab0f16c8b" /> <img width="336" height="10" alt="Image" src="https://github.com/user-attachments/assets/7eb9bfdc-54bc-4388-a125-b26ab0f16c8b" />
 <img width="4567" height="1264" alt="Image" src="https://github.com/user-attachments/assets/e2f18e4f-5bf8-4023-a3a4-d1135d37c7cd" />
+<img width="336" height="10" alt="Image" src="https://github.com/user-attachments/assets/adbc4700-646a-4344-8e7e-c27455d59df9" />
 
 <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/1e2f580b-93f6-47b5-9535-ad969d3d84c5" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="264" height="91" alt="Image" src="https://github.com/user-attachments/assets/ad78aa40-a988-4ac7-b7c8-b1b2c594ce4b" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/658a7d3a-f262-493d-97f5-932878fbb587" />
 
@@ -24,3 +29,5 @@
 
 
 <img width="1236" height="743" alt="Image" src="https://github.com/user-attachments/assets/ef043d72-d1fe-46f0-a4de-71f88b2b15c1" />
+
+<img width="1280" height="256" alt="Image" src="https://github.com/user-attachments/assets/c4a1403a-e605-427d-8b9a-020b7160ee78" />

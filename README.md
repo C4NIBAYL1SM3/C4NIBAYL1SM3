@@ -7,7 +7,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/) 
 
-‎ ‎　 　 ‎ ‎　‎ ‎ i love cosplaying, thrilling, shopping, drawing, reading!!! if you're VERY CLOSE, I'll tell u my cosplay acc! 
+‎ ‎　i love cosplaying, thrilling, shopping, drawing, reading!!! if you're VERY CLOSE, I'll tell u my cosplay acc! 
 <img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/64f43738-95ec-4f2b-a3af-5e6541540bfc" />
 ㅤㅤㅤㅤㅤ
 <img width="4501" height="403" alt="Image" src="https://github.com/user-attachments/assets/fd2fc24b-100c-462a-b66e-734eefb72cff" />

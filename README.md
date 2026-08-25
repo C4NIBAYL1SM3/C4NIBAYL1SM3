@@ -7,7 +7,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Guns.lol](https://guns.lol/fragile4ngelll)ㅤㅤㅤㅤㅤㅤㅤ[ATA](https://c4nibaydoll.atabook.org/) 
 
-‎i love cosplaying, thrifting, shopping, drawing, reading!!! if you're VERY CLOSE N I TRUST U VERY WELL, I'll tell u my cosplay acc! but yeah i often opened Instagram.. so don't mind me being slow resp... i often go to events too! mostly do my cosplay at home<3
+
 <img width="1720" height="1570" alt="Image" src="https://github.com/user-attachments/assets/64f43738-95ec-4f2b-a3af-5e6541540bfc" />
 ㅤㅤㅤㅤㅤ
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jua&size=40&letterSpacing=Normal&duration=2000&pause=500&color=7F5867&center=true&vCenter=true&width=1110&lines=If+i+die+tonight%2C+i'ma+make+it+look+pretty;Yeah%2C+I'm+in+your+spot%2C+yeah%2C+I'm+in+your+city;Actin'+real+rude%2C+bad+attitude%2C+actin'+real+goofy;But+if+i+cuss+you+out%2C+i'ma+make+it+look+pretty;If+I+start+a+fight%2C+i'ma+make+it+look+pretty;Actin'+real+rude%2C+bad+attitude%2C+actin'+real+goofy;Yeah%2C+I'm+in+your+spot%2C+yeah%2C+I'm+in+your+city;Actin'+real+rude%2C+bad+attitude%2C+actin'+real+goofy;But+if+i+get+kicked+out%2C+i'ma+make+it+look+pretty;Make+it+pretty%2C+make+it+pretty%2C+make+it+pretty%2C+make+it+pretty.+" alt="Typing SVG" /></a>
